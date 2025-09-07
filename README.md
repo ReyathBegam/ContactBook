@@ -66,6 +66,8 @@ Reyath Begam S
 
 📧 Email: reyath.begam@gmail.com
 
-🔗 LinkedIn:ww.linkedin.com/in/reyath-begam-s
+🔗 LinkedIn: linkedin.com/in/reyath-begam-s
 
-🐙 GitHub:
+🐙 GitHub: github.com/ReyathBegam
+
+
